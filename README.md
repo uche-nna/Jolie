@@ -1,1 +1,1 @@
-https://res.cloudinary.com/uche-nna/image/upload/v1567011717/Profile%20pic.jpg
+https://twitter.com/OfficiallyJolie/status/1166513294414352384?s=19
